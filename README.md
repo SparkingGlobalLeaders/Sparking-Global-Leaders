@@ -1,0 +1,2 @@
+# Sparking-Global-Leaders
+Sparking Global Leaders is a student-led initiative to provide students around the world with high-quality classes on international affairs, foreign policy, and current events. As education systems all around the nation fail to teach students current, global affairs, Sparking Global Leaders serves as an excellent resource for developing a solid base and understanding of the world around us. 
